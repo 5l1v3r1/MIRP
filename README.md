@@ -1,5 +1,5 @@
 # MIRP
-MIRP Tool was Developped from ip whois other tool 
+MIRP Tool was Developped from ip reverse dns lookup other tool 
 This Has made By ABDO10 - 28/11/2018 18:40 
 
 # Install 
