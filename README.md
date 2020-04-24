@@ -15,6 +15,6 @@ https://www.youtube.com/watch?v=Of6UBPe2IT0
 Telegram: http://t.me/abdo10hacker
 icq: 745267487
 Fb: www.facebook.com/10.htaccess
-hotmail: abdo10hacker@hotmail.com
+hotmail: defacerdz@gmail.com
 
 +> Allah Bless u All 
